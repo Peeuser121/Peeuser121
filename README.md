@@ -1,7 +1,6 @@
-- 👋 Hi, I’m @Peeuser121. or totally @NestorOS13. Yeah! 😁
-- 👀 I’m interested in something cool. 😉
-- 🌱 I’m currently learning C++. 😜
-- 💞️ I’m looking to collaborate on my favourite things i do! 😎
-- 📫 How to reach me: There is no way to reach me!
-- 😎 I like github!
-- 😪 After i am sleepy. i can sleep.
+- 👋 hi huys
+- 👀 I’m interested in
+- 🌱 I’m currently learning
+- 💞️ I’m looking to collaborate
+- 📫 How to sleep
+
