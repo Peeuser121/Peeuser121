@@ -1,1 +1,1 @@
-follow me or i will come
+i hate my asus it d*ng lags
