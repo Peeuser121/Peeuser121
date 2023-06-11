@@ -1,1 +1,1 @@
-i hate my asus it d*ng lags and i need some other brand pc that is windows 10
+windows 10 is bad i prefer windows 7 and windows 11
