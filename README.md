@@ -1,3 +1,4 @@
+WINDOWS NOTES!
 1. i prefer windows 7,8,8.1,11,xp,vista and others but not windows 10
 2. i guess micrososft forgot a anti-lag system to windows 10
 3. windows 8 is awesome
@@ -11,8 +12,6 @@
 11. windows 2000 was old and i didnt like using it sadly
 12. windows xp was AMAZING! it must get support back within more updates and wifi
 13. windows 10X is a diamond masterpiece when it was cancelled, being less lag then windows 10
-
-
 GAME NOTES!
 14. baldis basics is cool
 15. minecraft is cool
