@@ -12,8 +12,3 @@ WINDOWS NOTES!
 11. windows 2000 was old and i didnt like using it sadly
 12. windows xp was AMAZING! it must get support back within more updates and wifi
 13. windows 10X is a diamond masterpiece when it was cancelled, being less lag then windows 10
-GAME NOTES!
-14. baldis basics is cool
-15. minecraft is cool
-16. gacha life sucks
-17. win7 simu is good
