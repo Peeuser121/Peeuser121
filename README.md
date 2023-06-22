@@ -1,1 +1,2 @@
-- Hi im panizn15i you can call me paniz for shot
+- hello you hopped on my github
+- maybe you will hop on to my other platform accounts
